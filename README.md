@@ -1,0 +1,2 @@
+# Elyorbek.
+Mening birinchi loyiham 
